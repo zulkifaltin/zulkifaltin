@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I am Zülkif Altın:
 ⚡ I am currently working on Engineering<br>💻 I'm also designing<br>🌱 I am constantly learning<br>📸 I am an amateur photographer
 
 
